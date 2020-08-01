@@ -1,2 +1,2 @@
-https://formulax-hns.github.io/key2930HR
+https://formulax-hns.github.io/key2930H
 
